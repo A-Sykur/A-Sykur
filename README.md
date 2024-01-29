@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning English(Because I am a Chinese)
 - 💞️ I’m looking to collaborate on ...(EMMM…I don't know)
 - 📫 https://space.bilibili.com/3493076469286958 (My bilibili blog)
-- 😄 Pronouns: ...
+- 😄 Pronouns: S (?)
 - ⚡ Fun fact: ...
 
 <!---
